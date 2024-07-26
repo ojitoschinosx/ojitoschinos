@@ -228,7 +228,7 @@ DBZ 270-272 (PELICULA JANEMBA)
 
 https://drive.google.com/file/d/1K_Xlzq5_b5oss7hlR5S0CEuvF3VwG7dU/view?usp=sharing
 
-
+https://directosqwerty.onrender.com/
 https://directqwerty.000webhostapp.com/
 
 DB GT 2-8
@@ -283,6 +283,6 @@ DB GT 48-50
 
 https://drive.google.com/file/d/1xHhjeeUo_VtKGCdoHLTq_k6Dj0pgaWF0/view?usp=sharing
 
-
+https://directosqwerty.onrender.com/
 https://directqwerty.000webhostapp.com/
 
